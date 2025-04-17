@@ -1,0 +1,6 @@
+- 👋 Hi, I'm Max!
+- 📸 Photographer ♦︎ Filmmaker ♦︎ Graphic Designer | 📚 Media Informatics Student | 🎂 22 y/o
+- 💻 I'm passionate about coding, especially in the fields of media technology, automation, and creative tech solutions.
+- 🛠️ I love combining photography, filmmaking, design, and programming to create innovative projects.
+- 🌱 Always curious, always learning—especially interested in DIY tech, AI, and digital storytelling.
+- 📫 Want to connect or collaborate? Let's chat!
